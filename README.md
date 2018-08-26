@@ -1,0 +1,2 @@
+# Favoritte.github.io
+Публикация
